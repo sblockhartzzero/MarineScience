@@ -1,1 +1,1 @@
-Some of my presentations (pdf of posters and ppt of talks) and proposals related to my work in Marine Sciences.
+Some of my presentations and proposals related to my work in Marine Sciences.
